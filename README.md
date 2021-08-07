@@ -1,0 +1,2 @@
+# Motivation-Ideology
+We want to continuously help the ecosystem to recover while also providing a valuable asset to our holders. Every single day a new species is driven closer to extinction by the abusive and unsustainable use of natural resources. Most of humanity claims that we have lost our way. Let us prove them wrong! We are still in it for the good and the just cause! We are a fast-growing team of Crypto enthusiasts and incredibly talented Individuals building a strong community to make a change in this world.
